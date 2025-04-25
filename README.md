@@ -1,4 +1,4 @@
-# trabalho-de-programa-o-
+# trabalho-de-matematica-2
 oi professora! ta aqui o trabalho tudo certinho!
 
 
